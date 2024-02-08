@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @DiegoDearest
 - 👀 I’m interested in art, music and novels
 - 🌱 I’m currently learning css!
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on small projects
 - 📫 How to reach me: discord diegodearest
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: i am a big JJBA Steel Bal Run fannatic, and a cowboy lover
