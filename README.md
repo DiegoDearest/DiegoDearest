@@ -4,7 +4,8 @@
 - 💞️ I’m looking to collaborate on small projects
 - 📫 How to reach me: discord diegodearest
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: i am a big JJBA Steel Bal Run fannatic, and a cowboy lover
+- ⚡ Fun fact: I do both traditional and digital art!
+i am a big JJBA Steel Bal Run fannatic, and a cowboy lover :)
 
 <!---
 DiegoDearest/DiegoDearest is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
