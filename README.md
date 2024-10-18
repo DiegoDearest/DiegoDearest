@@ -1,4 +1,4 @@
--  Hi, I’m @DiegoDearest or just Diego!
+-  Hi, I’m @redvelv18 or just Diego!
 -  I’m interested in art, music and novels
 -  I’m currently learning c/c++ and python!
 -  I’m looking to collaborate on small projects
